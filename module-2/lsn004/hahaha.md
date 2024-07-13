@@ -1,0 +1,1 @@
+Confesso q cansei, frontend realmente não é minha praia
